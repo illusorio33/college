@@ -1,2 +1,2 @@
 # college
-all college projects
+all college projects are uploaded here 
